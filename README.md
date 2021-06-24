@@ -1,9 +1,4 @@
-## Its Me Farhan_Dqz🤗
-
-Thank you Everyone for helping to develop this one🦋 <BR>
-Join Whatsapp Group For Support 
-# ʙ⭕ᴛ ᴢᴏɴᴇ | ᴘᴜʙʟɪᴄ
-### https://chat.whatsapp.com/H0v1Idna7hA8dWBa88QPvw
+Thank you Everyone for helping to develop this one🦋 
 
 ## Thanks for Everything 
 ### We will always remember you..
